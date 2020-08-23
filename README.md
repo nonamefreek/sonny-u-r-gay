@@ -1,2 +1,2 @@
-# dubbed-anime-app
-watch anime for free in dub or sub
+# Sonny u r gay
+call me daddy bitch
